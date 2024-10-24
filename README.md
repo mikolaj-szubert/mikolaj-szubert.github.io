@@ -1,1 +1,0 @@
-# mikolaj-szubert.github.io
